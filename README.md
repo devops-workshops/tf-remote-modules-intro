@@ -2,6 +2,8 @@
 
 By [Amanda Collins](author contact) and [Erin Atkinson](author contact)
 
+![far away shot of cliffs with people on a plain with a double sun in the distance](assets/landscape-1112911_1920.jpg)
+
 ## Goals of this workshop
 
 Understanding of:
